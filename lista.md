@@ -3,3 +3,4 @@
 1. Cien años de soledad — Gabriel García Márquez ★★★★★
 2. Rayuela — Julio Cortázar (recomendado por camilo, ideal para releer)
 3. Don Quijote de la Mancha — Miguel de Cervantes ★★★★★
+3. La odisea - Homero ★★★★
